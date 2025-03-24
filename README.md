@@ -1,2 +1,0 @@
-# meera-mall
-# meera-mall
